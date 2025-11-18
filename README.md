@@ -1,0 +1,1 @@
+# Snagit-No-Trial
